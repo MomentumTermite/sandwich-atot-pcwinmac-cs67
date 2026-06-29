@@ -1,4 +1,4 @@
-# 
+# Smart sandwich attack bot templates for Mac OS | Native sandwich attack bot templates for PC Windows. Featuring transaction signing and arbitrage scanning — optimized for maximum performance on every platform.
 
 
 
